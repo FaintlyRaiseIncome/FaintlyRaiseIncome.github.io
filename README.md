@@ -80,7 +80,7 @@ Backend-разработчик с **6 годами коммерческого о
 
 - **Telegram:** [@FaintlyRaise](https://t.me/FaintlyRaise)
 - **Email:** [gotfrid_73@mail.ru](mailto:gotfrid_73@mail.ru)
-- **Резюме:** [ссылка на PDF / Notion]
+- **Резюме:** https://disk.yandex.ru/i/Z5H6Gt22PR36uQ
 
 ---
 
